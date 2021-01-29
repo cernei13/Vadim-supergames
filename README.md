@@ -1,1 +1,1 @@
-# Vadim-supergames
+# Vadim-superGames
